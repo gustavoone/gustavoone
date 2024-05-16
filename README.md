@@ -13,6 +13,7 @@ Seria status? Ou porque possuem várias funções que atraem as crianças? Samsu
 
 https://www.apple.com/br/iphone-15-pro/
 
+![IPHONE](https://github.com/gustavoone/gustavoone/assets/107050441/871611d5-8cbe-4a54-93dd-60300d9cb2f9)
 
 
        
@@ -20,8 +21,12 @@ https://www.apple.com/br/iphone-15-pro/
 
 https://www.samsung.com/br/smartphones/galaxy-s24-ultra/
 
+![Samsung](https://github.com/gustavoone/gustavoone/assets/107050441/92ae066b-d2e1-4705-8dd3-5b06937e0068)
+
+
 <div><
 
-
+Todos os dois existem funcionalidades distintas que podem se destacar pelas formas e detalhes para que chamem sua atenção. O produto de titânio do Iphone requer resistência e robustez. 
+E para o Samsung também vem apresentando uma identificação não só pelo produto também apresentado como também o que vem em destaque pelo seu design. 
 
 
